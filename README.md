@@ -4,7 +4,7 @@
 
 Poppy Playtime Chapter 3 Mobile APK is a horror adventure that draws players into a chilling exploration of an abandoned orphanage filled with unsettling mysteries. Designed as a survival puzzle game, it challenges players to escape eerie creatures, solve dark puzzles, and reveal hidden secrets within Playtime Co.’s haunting halls. It’s perfect for those who love a thrill mixed with problem-solving elements.
 
-## Download Here: https://modhello.com
+## Download: [Poppy Playtime Chapter 3 Mobile APK](https://modhello.com/poppy-playtime-chapter-3/)
 
 The game’s unique features:
 
